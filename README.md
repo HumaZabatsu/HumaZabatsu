@@ -2,7 +2,7 @@
 - 👀 I’m interested in Chess ♟
 - 🌱 I’m currently learning network programming
 - 💞️ I’m looking to collaborate on literally anything
-- 📫 How to reach me you can't
+- 📫 How to reach me: you can't
 - 😄 Pronouns: who?
 - ⚡ Fun fact: People die when they are killed
 
